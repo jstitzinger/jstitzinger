@@ -1,5 +1,5 @@
 - 👋 Hi
-Interests: IoT, Digital Signage, PoE, Audio
+Interests: IoT, Digital Signage, PoE, Audio, Interactive art (Guiness World Records for number of Ice Luminaries - State College, PA - 5622)
 
 
 <!---
